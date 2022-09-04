@@ -1,0 +1,2 @@
+- 👋 Hi, I’m mahluk
+- 📫 U can reach me * mahluk#0007 on Discord
